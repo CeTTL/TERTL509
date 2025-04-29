@@ -25,4 +25,4 @@ Next you will reflect on the various tools you have used to facilitate virtual c
 >
 > Visit the Extend Community discussion board to share some thoughts of how you might see a use of web annotation as a collaborative activity, or share what kinds of ways you already use tools like Hypothes.is (e.g. comments on Google docs is a form of annotation, as are things like Vialogues for annotating / discussing video).
 
-[Take me to the discussion!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1626660 ":class=button")
+[Take me to the discussion!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028933 ":class=button")
