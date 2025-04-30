@@ -10,6 +10,6 @@ The Mapping Your PLN activity below asks you to consider and then represent who 
 >
 > If creating a visual diagram presents a barrier for you, you can map your PLN by creating an audio, video, or written reflection.
 >
-> Visit the **[Mapping Your PLN](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641393)** activity in the Activity Bank for full instructions and the submission link.
+> Visit the **[Mapping Your PLN](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028938)** activity in the Activity Bank for full instructions and the submission link.
 
-[Take it to the Bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641393 ":class=button")
+[Take it to the Bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028938 ":class=button")
