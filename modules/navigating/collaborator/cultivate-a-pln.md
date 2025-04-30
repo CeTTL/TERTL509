@@ -10,7 +10,7 @@ A personal learning network, although often emergent and continually developing,
 >
 > Visit the [Cultivate Your PLN activity](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641382) in the Activity Bank for full instructions and the activity bank submission link.
 
-[Take it to the Bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641382 ":class=button")
+[Take it to the Bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028936 ":class=button")
 
 * * *
 
