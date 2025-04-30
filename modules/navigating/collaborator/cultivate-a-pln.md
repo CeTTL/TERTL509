@@ -46,4 +46,4 @@ You might seek out specific venues where you can build your PLN, like conference
 
 Visit the Extend Community discussion board to share strategies that you have tried to cultivate and expand your PLN. Visit the Extend Community discussion board to share your thoughts!
 
-[Take me to the discussion!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1626661 ":class=button")
+[Take me to the discussion!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028934 ":class=button")
