@@ -32,4 +32,4 @@ The aim is to broaden your network to include diverse, cross-disciplinary skills
 >
 > Visit the [Collaborative Dining Table activity](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641389) in the Activity Bank for full instructions and submission link.
 
-[Take it to the bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=1641389 ":class=button")
+[Take it to the bank!](https://elearn.waikato.ac.nz/mod/forum/view.php?id=2028937 ":class=button")
